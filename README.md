@@ -1,0 +1,1 @@
+# InspiraMente-blog
